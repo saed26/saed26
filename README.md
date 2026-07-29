@@ -22,7 +22,7 @@ I like turning ideas into working prototypes—especially where hardware + softw
 ---
 
 ## 📫 How to reach me
-- Email: said.sleiman@rwth-aachen.de
+- Email: saed_26.8@hotmail.com
 ---
 
 ⭐ If you find something useful here, feel free to follow or connect.
